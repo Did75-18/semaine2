@@ -8,3 +8,9 @@ https://www.codecademy.com/fr/users/Did75018/achievements
 
 ----------
 
+#### CV  
+
+voir fichier ci-dessus  
+
+----------
+
